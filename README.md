@@ -1,1 +1,2 @@
-# Aula07
+# Characters #
+All about the game's characters
