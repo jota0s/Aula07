@@ -8,4 +8,4 @@
 
 ### The game is played in a multiplayer setting, where the purpose is to be the best Mohammed Abdi Hassan, you get to steal from your friends, and from your enemies ###
 
-### Fuck you ###
+### O objetivo do jogo é de robar navios no mar do Oceano Indico, comprar upgrades ao navio no mercado negro, e aumentar a tua reputação ###
