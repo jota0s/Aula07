@@ -6,4 +6,4 @@
 
 ### You are the most successful somali pirate in all of existence Mohammed Abdi Hassan ###
 
-The game is played in a multiplayer setting, where the purpose is to be the best Mohammed Abdi Hassan, you get to steal from your friends, and from your enemies
+### The game is played in a multiplayer setting, where the purpose is to be the best Mohammed Abdi Hassan, you get to steal from your friends, and from your enemies ###
