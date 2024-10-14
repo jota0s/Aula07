@@ -10,4 +10,4 @@
 
  [link sobre história do piratas](https://g1.globo.com/Sites/Especiais/Noticias/0,,MUL882461-16107,00-PIRATAS+JA+FORAM+FUNCIONARIOS+DE+REIS+EM+ACOES+NOS+MARES.html)
 
-![Image](images/piratas.jpg)
+![Image](http://www.images/piratas.jpg)
